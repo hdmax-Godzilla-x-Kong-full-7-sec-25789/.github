@@ -2,6 +2,10 @@ After three days of release, “Godzilla x Kong: The New Empire” stands as the
 
 American filmmaker Adam Wingard's second "Godzilla x Kong"movie began its rollout in China on Friday, with its presale box office already having almost reached 40 million yuan (approximately US$5.5 million).
 
+<a href="https://moviezflix.fun/en/movie/823464/godzilla-x-kong-the-new-empire?Github" rel="nofollow">Watch Online 👉 Godzilla x Kong: The New Empire (2024) Fullmovie Online</a>
+
+<a href="https://moviezflix.fun/en/movie/823464/godzilla-x-kong-the-new-empire?Github" rel="nofollow">Online Download 👉 Godzilla x Kong: The New Empire (2024) Fullmovie Online HD</a>
+
 Adam Wingard’s MonsterVerse sequel, Godzilla x Kong: The New Empire, is now in theaters. If you want to watch the epic film from home, discover when Godzilla x Kong will likely arrive on streaming and digital platforms this year.
 
 Godzilla x Kong: The New Empire premiered at the Grauman's Chinese Theatre in Los Angeles on March 25, 2024, and was released in the United States on March 29. The film received mixed reviews from critics and has grossed $194 million worldwide, making it the seventh highest-grossing film of 2024.
